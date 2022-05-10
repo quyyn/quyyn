@@ -1,3 +1,3 @@
 - 👋 Hi, I’m  Quynh
-- Tôi  14 tuổi h 
+- Tôi  14 tuổi 
 - hihi
