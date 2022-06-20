@@ -1,3 +1,2 @@
 - 👋 Hi, I’m  Quynh
-- Tôi  14 tuổi 
-- hihi
+- Tôi  sinh ngày  03-02-2007, hk khá giỏi toán nhưng là một nhân vật chơi ngu 
